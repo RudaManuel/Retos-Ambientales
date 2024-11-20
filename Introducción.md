@@ -1,7 +1,4 @@
-## 📑 **Introduccion**
-
-![imagen](https://github.com/user-attachments/assets/bf4a5efd-6f07-4d0c-b005-bcca7ba4e64c)
-
+##  **Introduccion**
 
 La sociedad actual enfrenta una variedad de retos ambientales y sociales que requieren atención urgente para garantizar un futuro sostenible. Estos desafíos están interconectados y a menudo se agravan mutuamente.
 
