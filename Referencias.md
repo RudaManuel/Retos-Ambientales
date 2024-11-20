@@ -13,3 +13,5 @@ Impacto de los actuales problemas medioambientales:
 -https://files.ipbes.net/ipbes-web-prod-public-files/2020-02/ipbes_global_assessment_report_summary_for_policymakers_es.pd
 
 -https://sdgs.un.org/goals (página en inglés)
+
+Medidas y acciones para minimizar los impactos ambientales: https://www.meuresiduo.com/blog-es/7-actitudes-para-evitar-el-impacto-ambiental/
