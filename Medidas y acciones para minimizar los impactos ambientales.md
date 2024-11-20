@@ -1,1 +1,15 @@
+_**Medidas y acciones para minimizar los impactos ambientales**_
 
+Los impactos ambientales son cambios en el medio ambiente que resultan de algún tipo de acción o actividad humana. Es causada por un desequilibrio causado por una relación conflictiva entre los seres humanos y el medio ambiente. La humanidad ahora es consciente de que define nuevos comportamientos y requiere nuevas medidas en la gestión de los recursos ambientales.
+
+Ejemplos de impactos que causan daños y son difíciles de eliminar:
+
+Industria Minera: Las actividades mineras causan el mayor número de impactos ambientales en Brasil. La minería irregular y en pequeña escala puede contaminar ríos, lagos y suelos, principalmente con mercurio. Ejemplos de regiones de Brasil que sufren estos problemas: Pará (minería de bauxita, cobre, manganeso, oro y níquel), Minas Gerais (minería de oro y manganeso) y Goiás (minería de níquel y cobre).
+
+Agricultura: La agricultura ha causado graves daños ecológicos al Cerrado, los humedales del Pantanal y la selva amazónica. Se despejaron amplias zonas verdes para la ganadería y el cultivo de soja.Estos problemas han dañado los ecosistemas en estas áreas y han reducido la cantidad de espacios verdes que deben protegerse. Algunos climatólogos dicen que la deforestación en el Amazonas puede estar relacionada con la reducción de las precipitaciones en el sureste de Brasil. Ejemplos de zonas de Brasil que sufren estos problemas: el sur de la Amazonía, el norte del Pantanal de Mato Grosso y el norte del Cerrado.
+
+Producción de petróleo: esta actividad es intensiva a lo largo de la costa sureste de Brasil. Un accidente con una plataforma petrolera o un buque cisterna puede causar graves daños al medio ambiente, incluida la muerte masiva de peces, aves marinas y otras especies marinas.
+
+Ciertos tipos de desechos generados por instalaciones comerciales e industriales pueden filtrarse al medio ambiente si no se manejan adecuadamente. sobre el terreno, contaminando la tierra y las aguas subterráneas que abastecen las cuencas fluviales, contaminando el medio ambiente y el agua que consumimos todos los días. La naturaleza es una de las principales víctimas de la eliminación inadecuada de residuos. ríos, arroyos, canales,La laguna y todos sus ecosistemas se encuentran contaminados por la acumulación y disposición inadecuada de desechos.
+
+Además de concienciar al público, existen formas de combatir el daño medioambiental. Para evitar estos problemas es necesario trabajar en conjunto con buenas intenciones, tales como: el uso consciente de los recursos naturales, la conciencia de la protección ambiental para las generaciones futuras y el establecimiento de leyes que garanticen la protección ambiental. , es la principal medida para reducir el impacto sobre el medio ambiente. Como todos los problemas que enfrentamos, la concienciación debe comenzar con el individuo y extenderse gradualmente a la sociedad. El mundo en el que vivimos está lleno de cosas hermosas y es necesario que sepamos aprovechar todo lo que se nos brinda para crear un equilibrio entre la naturaleza y la humanidad.
