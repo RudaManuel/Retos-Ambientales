@@ -7,6 +7,9 @@ Principales retos ambientales: https://www.google.com/url?sa=t&source=web&rct=j&
 Principales retos sociales: https://concepto.de/problemas-sociales/
 
 Impacto de los actuales problemas medioambientales:
+
 -https://www.ipcc.ch/languages-2/spanish/
+
 -https://files.ipbes.net/ipbes-web-prod-public-files/2020-02/ipbes_global_assessment_report_summary_for_policymakers_es.pd
+
 -https://sdgs.un.org/goals (página en inglés)
