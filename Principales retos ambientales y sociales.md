@@ -21,8 +21,6 @@ _**Principales retos ambientales(Cambio climático)**_
 
 -Antes de nada tenemos que saber que el clima es el El clima es el estado más frecuente de la atmósfera de un lugar de la superficie terrestre, es decir, una descripción estadística de las condiciones meteorológicas más frecuentes de una región en cierto periodo de tiempo.
 
--La ONU prevé que para el año 2050 la población mundial aumentará casi 2000 millones de personas en los próximos 30 años, pasando de los 8000 millones actuales a los 9700 millones en 2050, pudiendo llegar a un pico de cerca de 10.400 millones para mediados de 2080.
-
 -Aumento de las temperaturas y eventos catastróficos como tormentas, sequías e inundaciones en todo el mundo lo que lleva a:
 Derretimiento del hielo y aumento del nivel del mar.
 Modificación de ecosistemas y pérdida de hábitat.
