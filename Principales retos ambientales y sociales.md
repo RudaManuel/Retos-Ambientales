@@ -19,7 +19,7 @@ Los principales retos ambientales se refieren al conjunto de problemas que afect
 
 _**Principales retos ambientales(Cambio climático)**_
 
--Antes de nada tenemos que saber que el clima es el El clima es el estado más frecuente de la atmósfera de un lugar de la superficie terrestre, es decir, una descripción estadística de las condiciones meteorológicas más frecuentes de una región en cierto periodo de tiempo.
+Los contaminantes físicos son aquellos que al adicionarse al ambiente, su sola presencia altera la calidad de sus componentes
 
 -Aumento de las temperaturas y eventos catastróficos como tormentas, sequías e inundaciones en todo el mundo lo que lleva a:
 Derretimiento del hielo y aumento del nivel del mar.
