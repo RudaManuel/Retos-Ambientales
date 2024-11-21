@@ -5,6 +5,8 @@ https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://adiman
 
 https://www.google.com/searchq=La+ONU+prev%C3%A9+que+para+el+a%C3%B1o+2050+la+poblaci%C3%B3n+mundial+sea+de&rlz=1CAVNCX_enES1122&oq=La+ONU+prev%C3%A9+que+para+el+a%C3%B1o+2050+la+poblaci%C3%B3n+mundial+sea+de&gs_lcrp=EgZjaHJvbWUyBggAEEUYOdIBCDE2NjNqMGo3qAIAsAIA&sourceid=chrome&ie=UTF-8#:~:text=10.400%20millones%20para-,mediados,-de%202080.
 
+https://www.bbc.com/mundo/articles/cn4y2nk5887o#:~:text=Un%20informe%20de%20la%20Organizaci%C3%B3n,aguas%E2%80%9D%20con%20fines%20de%20riego.
+
 https://www.nationalgeographic.com.es/mundo-ng/estos-son-paises-mas-poblados-mundo-2024-china-no-encabeza-lista_22826
 
 ¿Que es el clima?:
