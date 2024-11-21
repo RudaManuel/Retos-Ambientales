@@ -45,6 +45,8 @@ Pero esta no es una ecuación simple. La industria agrícola desempeña un papel
 
 -Se han incrementado los residuos sólidos, especialmente los residuos plásticos que trae la falta de infraestructura para un adecuado reciclaje y eliminación de residuos.
 
+-Contaminación lumínica que se produce por la iluminación artificial incontrolada en las ciudades y en el campo provoca contaminación lumínica.  Las luminarias, la iluminación de estructuras y los indicadores iluminados frecuentemente descargan luz de manera desperdiciada, desperdiciando energía y creando brillos no deseados.
+
 _**Principales retos sociales**_
 
 -Desigualdad económica. La creciente brecha entre ricos y pobres es un problema constante en muchas partes del mundo. Las desigualdades en el acceso a los recursos, la educación y las oportunidades de empleo pueden perpetuar círculos viciosos de pobreza y marginación.
