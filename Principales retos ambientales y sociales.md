@@ -46,6 +46,8 @@ Pero esta no es una ecuación simple. La industria agrícola desempeña un papel
 -Se han incrementado los residuos sólidos, especialmente los residuos plásticos que trae la falta de infraestructura para un adecuado reciclaje y eliminación de residuos.
 
 -Contaminación lumínica que se produce por la iluminación artificial incontrolada en las ciudades y en el campo provoca contaminación lumínica.  Las luminarias, la iluminación de estructuras y los indicadores iluminados frecuentemente descargan luz de manera desperdiciada, desperdiciando energía y creando brillos no deseados.
+En la escala de la etiqueta energética Anteriormente, el grado de eficiencia energética se medía con las letras: A+++, A++, A+, A, B, C y D. 
+Con este cambio se eliminan los niveles A+++, A++ y A y se establece una nueva escala de 7 letras: A, B, C, D, E, F, G, siendo la etiqueta A la de mayor eficiencia y la G la de menor.
 
 _**Principales retos sociales**_
 
