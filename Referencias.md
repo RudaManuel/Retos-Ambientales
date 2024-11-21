@@ -9,8 +9,7 @@ https://www.bbc.com/mundo/articles/cn4y2nk5887o#:~:text=Un%20informe%20de%20la%2
 
 https://www.nationalgeographic.com.es/mundo-ng/estos-son-paises-mas-poblados-mundo-2024-china-no-encabeza-lista_22826
 
-¿Que es el clima?:
-https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://www.gob.mx/inecc/acciones-y-programas/que-es-el-clima&ved=2ahUKEwjx482KuOiJAxVfBdsEHR_gKnIQFnoECB4QAw&usg=AOvVaw2i9XgRBHNdJGCWsOFQXL5U
+https://dkv.es/corporativo/blog-360/medioambiente/contaminacion/contaminacion-luminica-causas-consecuencias-salud#:~:text=El%20uso%20excesivo%20e%20indiscriminado,energ%C3%ADa%20y%20generando%20brillo%20innecesario.
 
 Principales retos sociales: https://concepto.de/problemas-sociales/
 
