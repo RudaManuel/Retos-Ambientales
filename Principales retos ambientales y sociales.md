@@ -2,6 +2,19 @@
 
 -La ONU una organización muy metida en en los diversos problemas que puede llegar a tener el mundo, prevé que para el año 2050 la población mundial aumentará casi 2000 millones de personas en los próximos 30 años, pasando de los 8000 millones actuales a los 9700 millones en 2050, pudiendo llegar a un pico de cerca de 10.400 millones para mediados de 2080.
 
+-Los Paises más poblados son: 
+
+-India, 1.441 millones
+-China, 1.425 millones
+-Estados Unidos, 341 millones
+-Indonesia, 279 millones
+-Paquistán, 245 millones
+-Nigeria, 229 millones
+-Brasil, 217 millones
+-Bangladesh, 174 millones
+-Rusia, 143 millones
+-Etiopía, 129 millones
+
 Los principales retos ambientales se refieren al conjunto de problemas que afectan al medio ambiente y su capacidad para sostener la vida en el planeta.Son los siguientes:
 
 _**Principales retos ambientales(Cambio climático)**_
