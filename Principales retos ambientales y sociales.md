@@ -35,6 +35,14 @@ Modificación de ecosistemas y pérdida de hábitat.
 
 -Explotación de agua dulce, minerales y bosques. Esto trae consigo el estrés de recursos debido al crecimiento de la población.
 
+Esta escasez de resucursos y explotacion de agua conlleva a un mayor consumo, la crisis de la sequía se intensifica anualmente y la escasez de este elemento esencial es una cruda realidad que afecta a casi el 40% de los habitantes del planeta. 
+
+Según las estadísticas de la UNESCO, en 2022, alrededor de 2.200 millones de personas carecían de acceso a agua potable gestionada adecuadamente.
+
+Y la agricultura juega un papel clave en este escenario. dijo en 2021 que la agricultura mundial utiliza agua para cultivos de una manera que consume el 72% de toda el agua que extraemos de ríos y lagos.
+
+Pero esta no es una ecuación simple. La industria agrícola desempeña un papel fundamental a la hora de asegurar el sustento global y ofrecer ocupaciones a las comunidades.
+
 -Gestión de Residuos.
 
 -Se han incrementado los residuos sólidos, especialmente los residuos plásticos que trae la falta de infraestructura para un adecuado reciclaje y eliminación de residuos.
