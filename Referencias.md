@@ -21,8 +21,10 @@ https://www.ipcc.ch/languages-2/spanish/
 
 https://files.ipbes.net/ipbes-web-prod-public-files/2020-02/ipbes_global_assessment_report_summary_for_policymakers_es.pd
 
+https://dkv.es/corporativo/blog-360/medioambiente/contaminacion/contaminacion-luminica-causas-consecuencias-salud#:~:text=El%20uso%20excesivo%20e%20indiscriminado,energ%C3%ADa%20y%20generando%20brillo%20innecesario.
 https://sdgs.un.org/goals (página en inglés)
 
-Medidas y acciones para minimizar los impactos ambientales: https://www.meuresiduo.com/blog-es/7-actitudes-para-evitar-el-impacto-ambiental/
+Medidas y acciones para minimizar los impactos ambientales: 
 
--ChatGPT
+https://www.meuresiduo.com/blog-es/7-actitudes-para-evitar-el-impacto-ambiental/
+
