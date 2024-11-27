@@ -4,6 +4,6 @@
 
 _**Índice**_
 
-1. [Íntroducción](Íntroduccion.md)
+1. [Introducción](Introducción.md)
    
 2
