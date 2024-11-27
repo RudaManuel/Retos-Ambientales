@@ -5,4 +5,4 @@
 _**Índice**_
 
 1. [Introducción](Introducción.md)
-2. [Principales retos ambientales y sociales](Principalesretosambientalesysociales.md)
+2. [Principales retos ambientales y sociales](Principales_retos_ambientales_y_sociales.md)
