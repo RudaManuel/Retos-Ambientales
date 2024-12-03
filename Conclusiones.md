@@ -1,4 +1,4 @@
-_**Conclusión**_
+📑_**Conclusión**_
 
 Los desafíos ambientales y sociales son interdependientes y solo pueden superarse con soluciones colaborativas y sostenibles a nivel global. 
 El impacto de los problemas ambientales no se limita a la naturaleza, sino que también tiene efectos importantes en la salud, la economía y la seguridad social. 
