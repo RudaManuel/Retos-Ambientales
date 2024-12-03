@@ -12,7 +12,7 @@ _**Índice**_
 _**Conclusiones:**_
 [Documento](Conclusiones.md)
 
-_**Mapa conceptual**_
+🧷_**Mapa conceptual**_
 [Imagen](Mapa_Conceptual.drawio.png)
 
 📘_**Glosario**_
