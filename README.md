@@ -21,5 +21,5 @@ _**Glosario**_
 _**Referencias**_
 [Documento](Referencias.md)
 
-_**Autores**_
+✍️ _**Autores**_
 [Documento](Autores.md)
