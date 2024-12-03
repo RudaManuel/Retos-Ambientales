@@ -1,4 +1,4 @@
-📑_**Glosario**_
+🔠_**Glosario**_
 
 Alianza: Pacto, convenio o tratado en que se recogen los términos en que se alían dos o más partes.
 
