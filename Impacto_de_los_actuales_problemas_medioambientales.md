@@ -1,4 +1,4 @@
-_**Impacto de los actuales problemas mediambientales**_
+📊_**Impacto de los actuales problemas mediambientales**_
 
 Los problemas medioambientales actuales tienen un impacto profundo y multifacético en las sociedades, economías y ecosistemas del planeta. 
 A continuación,algunos de los efectos más significativos de los problemas medioambientales actuales:
