@@ -9,7 +9,7 @@
 3. [Impacto de los actuales problemas medioambientales](Impacto_de_los_actuales_problemas_medioambientales.md)
 4. [Medidas y acciones para minimizar los impactos ambientales.](Medidas_y_acciones_para_minimizar_los_impactos_ambientales.md) 
 
-_**Conclusiones:**_
+🖥️_**Conclusiones:**_
 [Documento](Conclusiones.md)
 
 🧷_**Mapa conceptual**_
