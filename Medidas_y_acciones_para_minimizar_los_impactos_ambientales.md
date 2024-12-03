@@ -1,4 +1,4 @@
-_**Medidas y acciones para minimizar los impactos ambientales**_
+🩹_**Medidas y acciones para minimizar los impactos ambientales**_
 
 Los impactos ambientales son cambios en el medio ambiente que resultan de algún tipo de acción o actividad humana. Es causada por un desequilibrio causado por una relación conflictiva entre los seres humanos y el medio ambiente. La humanidad ahora es consciente de que define nuevos comportamientos y requiere nuevas medidas en la gestión de los recursos ambientales.
 
