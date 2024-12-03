@@ -15,10 +15,10 @@ _**Conclusiones:**_
 🧷_**Mapa conceptual**_
 [Imagen](Mapa_Conceptual.drawio.png)
 
-📑_**Glosario**_
+🔠_**Glosario**_
 [Documento](Glosario.md)
 
-📖_**Referencias**_
+📕_**Referencias**_
 [Documento](Referencias.md)
 
 ✍️ _**Autores**_
