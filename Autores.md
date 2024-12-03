@@ -1,3 +1,3 @@
-_**Autores**_
+✍️ _**Autores**_
 
 Manuel Ruda Gómez
